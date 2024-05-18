@@ -1,1 +1,1 @@
-![20240518-204219](https://github.com/ardaklc0/TemporaryGIFHolder/assets/87716329/7cccc0eb-ab84-4b3a-90bf-29b4f38db95e)
+![20240518-204854](https://github.com/ardaklc0/TemporaryGIFHolder/assets/87716329/94f91427-e12a-40f7-bfc8-c20475191e5c)
